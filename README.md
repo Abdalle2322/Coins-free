@@ -1,2 +1,2 @@
-# Coins-free
-To get free coins on tik tok
+10000# Coins-free
+yesTo get free coins on tik tok
